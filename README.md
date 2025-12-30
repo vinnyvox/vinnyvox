@@ -72,7 +72,7 @@ Stardew Valley<br>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-#### Kins + Favs:<br>
+#### Copinglinks + Favs:<br>
 Phoenix Wright - Ace Attorney <br>
 Rody Lamoree - Dead Plate <br>
 Zagreus - Hades <br>
